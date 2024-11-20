@@ -14,3 +14,10 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+- 🌱 I’m currently learning how to manage my SaaS and increase adoption. Oh and email marketing.
+
+
+
+
+
